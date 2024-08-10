@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Muhammad Fadly Switanto
+- 👀 I’m interested in Web Development and UI/UX
+- 🌱 I’m currently learning Data Analytics
+- 💞️ I’m looking to collaborate on Anything around Cikarang
+- 📫 How to reach me @muhammadfadlyswitano@gmail.com
+- 😄 Pronouns: Fadly
+- ⚡ Fun fact: Sometimes lazy but willingly to learn....
